@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @le-blyad
+- 👀 I’m interested in your mom
+- 🌱 I’m currently learning your mom
+- 📫 How to reach me ... search me in bed your mom
+- 😄 Pronouns: your papa
+- ⚡ Fun fact: I love your mom
